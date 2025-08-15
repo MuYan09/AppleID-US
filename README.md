@@ -4,9 +4,9 @@
 
 [【美国苹果ID共享账号每日更新】](https://docs.applexp.com/free-accounts)
 
-#### 购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://juzixp.com/)
+#### 购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://shop.muooy.com/)
 
-#### 购买共享账号地址：[【 点击进入购买】](https://juzixp.com/buy/21)
+#### 购买共享账号地址：[【 点击进入购买】](https://shop.muooy.com/buy/21)
 
 ## 本仓库提供包括：
 - **美国苹果ID账号购买**，稳定安全，支持登录App Store、iCloud等服务
